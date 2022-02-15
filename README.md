@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Glitchthatwitch
+- 👀 I’m interested in Minecraft
+- 🌱 I’m currently learning Minecraft
+- 💞️ I’m looking to collaborate on Minecraft
